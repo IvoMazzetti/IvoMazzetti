@@ -5,3 +5,4 @@
 - 📫 How to reach me: 
       Instagram: @Ivo_Mazzetti
       LinkedIn: https://www.linkedin.com/in/ivo-mazzetti-19756219b
+      Email: ivomazzetti15@gmail.com
